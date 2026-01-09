@@ -1,0 +1,1 @@
+# AI-small-skills-A1-project
